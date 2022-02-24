@@ -1,0 +1,5 @@
+- 👋 Hi, I’m simon.fang
+- 👀 I’m interested in some ball-sports, games and some intersting things
+- 🌱 I’m currently learning algorithm 
+- 💞️ I’m looking to collaborate on intersting parter and company
+- 📫 You can reach me with yoyi.fx@gmail.com
